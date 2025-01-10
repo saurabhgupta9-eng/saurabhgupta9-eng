@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/e4c07695-2875-491d-ab01-37af902bd361)
+![image](https://github.com/user-attachments/assets/af1aaa73-e61b-44fd-b5d1-359cb3a57e32)
+
 
 
 Hi, I'm Saurabh Gupta! 👋
